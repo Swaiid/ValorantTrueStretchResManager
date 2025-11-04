@@ -14,7 +14,7 @@ The easiest way to set up stretched resolution for Valorant!
 4. Enjoy your stretched resolution!
 
 🎥 Video Tutorial
-Watch my TikTok guide: [YOUR_TIKTOK_VIDEO_LINK]
+Watch my TikTok guide: [tutorial](https://www.tiktok.com/@swaiid/video/7568959473717366038?is_from_webapp=1&sender_device=pc&web_id=7538480215195813398)
 
 🆘 Support
 - Discord: https://discord.gg/eAXXsnCu
