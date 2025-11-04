@@ -18,7 +18,7 @@ Watch my TikTok guide: [YOUR_TIKTOK_VIDEO_LINK]
 
 🆘 Support
 - Discord: https://discord.gg/eAXXsnCu
-- TikTok: @swaiid
+- TikTok: https://tiktok.com/@swaiid
 - Ko-fi: https://ko-fi.com/swaid
 
 Made by swaid#nooby
